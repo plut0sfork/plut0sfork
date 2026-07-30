@@ -4,7 +4,7 @@
 <img width="1732" height="720" alt="Once Upon a Time    in Hollywood" src="https://github.com/user-attachments/assets/3c4077b2-893d-46e5-b130-8cfb7e4ef92d" />
 <p align="right">
 ┈┈┈┈┈┈┈┈ ┈┈┈┈┈┈┈┈ ┈┈┈┈┈┈┈┈ ^ᶠʳᵒᵐ, ᵒⁿᶜᵉ ᵘᵖᵒⁿ ᵃ ᵗⁱᵐᵉ... ⁱⁿ ʰᵒˡˡʸʷᵒᵒᵈ<br/>
-Davey. ݁݁݁݁ₒᵣ ─── Rich ⋆ 
+
   <p align="center">
 ☻,,☻☻☻ he⟨⟨him,, -- c+h +int <br/>
     ┈┈┈┈┈┈ canadian﹐ english-speaking ﹐ 18 ﹐ bisex,
