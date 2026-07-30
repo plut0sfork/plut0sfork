@@ -7,7 +7,7 @@
 
   <p align="center">
 ☻,,☻☻☻ he⟨⟨him,, -- c+h +int <br/>
-    ┈┈┈┈┈┈ canadian﹐ english-speaking ﹐ 18 ﹐ bisex,
+    ┈┈┈┈┈┈ canadian﹐ english-speaking ﹐ 18 ﹐ bi,
  <br/>
 <p align="left">
 fandoms ⨾ <br/> 
