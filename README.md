@@ -16,7 +16,7 @@ fandoms ⨾ <br/>
 scandinavia and the world ﹐ jujutsu kaisen ﹐ Red Dead Redemption II ﹐ uuhh others?? just ask ^^
   ✯<br/> 
 <br/> 
-<p align="left"> id describe myself as generally friendly﹐ so dont be afraid to int on any platoform﹐﹐  <br/> 
+<p align="left"> id describe myself as generally friendly﹐ so dont be afraid to int on any platform﹐﹐  <br/> 
 ┈┈┈> digital artist ┈┈┈┈ ENTP <br/> 
 <br/> 
 <br/> 
