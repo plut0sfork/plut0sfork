@@ -7,7 +7,8 @@
 
   <p align="center">
 ☻,,☻☻☻ he⟨⟨him,, -- c+h +int <br/>
-    ┈┈┈┈┈┈ canadian﹐ english-speaking ﹐ 18 ﹐ bi,
+    ┈┈┈┈┈┈ canadian﹐ english-speaking ﹐ 18 ﹐<br/>
+    ,,rick dalton kin
  <br/>
 <p align="left">
 fandoms ⨾ <br/> 
