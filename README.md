@@ -17,6 +17,7 @@ scandinavia and the world ﹐ jujutsu kaisen ﹐ Red Dead Redemption II ﹐ uuhh
   ✯<br/> 
 <br/> 
 <p align="left"> id describe myself as generally friendly﹐ so dont be afraid to int on any platform﹐﹐  <br/> 
+  i also encourage calling me by js the name of the character im cosplaying lol <br/>
 ┈┈┈> digital artist ┈┈┈┈ ENTP <br/> 
 <br/> 
 <br/> 
