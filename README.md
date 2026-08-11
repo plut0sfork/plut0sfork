@@ -10,7 +10,7 @@
     ┈┈┈┈┈┈ canadian﹐ english-speaking ﹐ 18 ﹐
  <br/>
 <p align="left">
-fandoms ⨾ <br/> 
+i love ... ⨾ <br/> 
 <p align="center">
 - once upon a time... in hollywood ﹐ the beatles ﹐ homestuck ﹐ FIGHT CLUB ﹐ deltarune <br/> 
 scandinavia and the world ﹐ jujutsu kaisen ﹐ Red Dead Redemption II ﹐ uuhh others?? just ask ^^ <br/>
