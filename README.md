@@ -1,9 +1,8 @@
 <p align="center">
 ✭  <br/>
 ┈┈┈┈┈┈┈┈ ┈┈┈┈┈┈┈┈ ┈┈┈┈┈┈┈┈<br/>
-<img width="1732" height="720" alt="Once Upon a Time    in Hollywood" src="<img width="1183" height="493" alt="image" src=" <img width="1183" height="493" alt="image" src="https://github.com/user-attachments/assets/e75959a0-4682-4e7f-81c6-c873171555db" />
-" />
-" />
+<img width="1183" height="493" alt="image" src="https://github.com/user-attachments/assets/0a3f4f62-a040-4d58-a387-de17b4d3b977" />
+
 <p align="right">
 ┈┈┈┈┈┈┈┈ ┈┈┈┈┈┈┈┈ ┈┈┈┈┈┈┈┈ ^ᶠʳᵒᵐ, ᵒⁿᶜᵉ ᵘᵖᵒⁿ ᵃ ᵗⁱᵐᵉ... ⁱⁿ ʰᵒˡˡʸʷᵒᵒᵈ<br/>
 
