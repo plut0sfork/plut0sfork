@@ -22,4 +22,8 @@ scandinavia and the world ﹐ jujutsu kaisen ﹐ Red Dead Redemption II ﹐ The 
 ┈┈┈> digital artist ┈┈┈┈ ENTP <br/> 
 <br/> 
 <br/> 
+<p align="center">
+<img width="375" height="50" alt="pixil-gif-drawing" src="https://github.com/user-attachments/assets/1fbbdac4-4f56-48ae-82bf-bbe0a7fe4934" />  
+  <br/> <p align="left"> ʳᶦᶜᵏ ᵈᵃˡᵗᵒⁿ ᵏᶦⁿ..
+
 
