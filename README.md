@@ -27,9 +27,9 @@ scandinavia and the world ﹐ jujutsu kaisen ﹐ Red Dead Redemption II ﹐ The 
   <br/>  ┈┈┈┈┈┈┈┈ ┈┈┈┈┈┈┈┈ʳⁱᶜᵏ ᵈᵃˡᵗᵒⁿ ᵏⁱⁿ,..
   <br/>
    <br/>
-  OFFICIALLY PONYTOWNS RICK DALTON!!!
+  OFFICIALLY PONYTOWNS RICK DALTON!!! <br/>
   <img width="601" height="30" alt="image" src="https://github.com/user-attachments/assets/fdb5b8aa-54f9-447e-966e-80f503f5d6ba" />
-(tysm @pt-hall-of-media)
+<br/> (tysm @pt-hall-of-media)
   <br/>
   <br/>
   ✭
