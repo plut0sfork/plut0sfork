@@ -14,7 +14,7 @@
 i love ... ⨾ <br/> 
 <p align="center">
 - once upon a time... in hollywood ﹐ the beatles ﹐ homestuck ﹐ FIGHT CLUB ﹐ deltarune <br/> 
-scandinavia and the world ﹐ jujutsu kaisen ﹐ Red Dead Redemption II ﹐ The WITCHER ﹐ +any poster on my strawpage ^^ <br/>
+scandinavia and the world ﹐ Red Dead Redemption II ﹐ The WITCHER ﹐ +any poster on my strawpage ^^ <br/>
   ✯-- ʲᵘˢᵗ ᵃⁿ ᶠʸᶦ, ᶦ ᵈᵒⁿᵗ ᶦⁿᵗ ʷ ᶠᵃⁿᵈᵒᵐ ᶠᵒʳ ᵐᵒˢᵗ ᵒᶠ ᵗʰᵉˢᵉ ^^ ᵉˣᶜᵉᵖᵗ ᴼᵁᴬᵀᴵᴴ<br/> 
 <br/> 
 <p align="left"> id describe myself as generally friendly﹐ so dont be afraid to int on any platform﹐﹐  <br/> 
