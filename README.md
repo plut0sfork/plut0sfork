@@ -30,9 +30,6 @@ you can dm me on anything, or send reqs on my strawpage or on tumblr...i'll acce
 <p align=right>
   <img width="276.6" height="225.6" alt="image" src="https://github.com/user-attachments/assets/9475b890-b123-4145-a177-c7e91505c6f1" /> /,,~..
 
-<br/>
-<br/> <p align=center> <img width="608" height="27" alt="image" src="https://github.com/user-attachments/assets/78db02ad-b3a6-4dd9-ab3b-19dc664a90ba" /> <br/> thank you SO MUCH <a href="https://github.com/pt-hall-of-media">pt-hall-of-media!!!</a>
-
 <br/> 
 <br/>
 <br/>
