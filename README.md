@@ -25,6 +25,7 @@ dni if you're a proshipper,darkshipper,etc.., that's business i don't want to ge
 ,.,,.,.,,,<br/>
 on ponytown? im usually in the hs area, or at docks^^ c+h and int/whisp always <br/>
 you can dm me on anything, or send reqs on my strawpage or on tumblr...i'll accept it!
+</details>
 
 <p align=right>
   <img width="276.6" height="225.6" alt="image" src="https://github.com/user-attachments/assets/9475b890-b123-4145-a177-c7e91505c6f1" /> /,,~..
