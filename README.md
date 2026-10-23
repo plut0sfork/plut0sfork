@@ -17,6 +17,8 @@
  ㅤㅤㅤ i'm male, i use male nouns.. ㅤㅤi'm a bit socially inept, and probably autistic. 
   <br/> <br/> 
   alternate names i answer to are..ㅤ ﹐ Davey, Pluto, Paul, David... 
+  <br/>
+  i'm a Rick Dalton fictionkin ⁽ᶜᵃˢᵘᵃˡˡʸ⁾ if doubles or sourcemates even exist, id love to see one.
 </details>
 <br/>
 <p align=center> <details open><summary> interacting with me,,^^</summary>
