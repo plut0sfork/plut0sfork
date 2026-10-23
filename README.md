@@ -37,5 +37,5 @@ you can dm me on anything, or send reqs on my strawpage or on tumblr...i'll acce
 <br/>
 
 <p align=left> 
-<a href="https://www.tumblr.com/plutosforks">my.. TUMBLR</a> ﹐ <a href="https://ricksforks.straw.page">my., STRAWPAGE</a>  ﹐ <a href="https://pronouns.cc/@ricksforks">my., PRONOUNS.CC</a> ﹐ <a href="https;//www.tumblr.com/ask-offbeatstuck">my FANVENTURE</a>
+<a href="https://www.tumblr.com/plutosforks">my.. TUMBLR</a> ﹐ <a href="https://ricksforks.straw.page">my., STRAWPAGE</a>  ﹐ <a href="https://pronouns.cc/@ricksforks">my., PRONOUNS.CC</a> ﹐ <a href="https://letterboxd.com/rickdal/">my LETTERBOXD<a/> ﹐ <a href="https;//www.tumblr.com/ask-offbeatstuck">my FANVENTURE</a>
 
