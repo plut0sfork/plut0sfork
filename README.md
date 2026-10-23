@@ -1,37 +1,32 @@
-<p align="center">
-✭  <br/>
-┈┈┈┈┈┈┈┈ ┈┈┈┈┈┈┈┈ ┈┈┈┈┈┈┈┈<br/>
-<img width="1183" height="493" alt="image" src="https://github.com/user-attachments/assets/0a3f4f62-a040-4d58-a387-de17b4d3b977" />
+<p align=left> 
+'~~...<img width="227.6" height="286" alt="image" src="https://github.com/user-attachments/assets/58043f9a-b9a6-4aa8-993a-c759733f853f" />
+  
+<p align=left> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+  ㅤ<br/> <p align=center>✯✯✯ㅤㅤㅤㅤ​🇨​​🇦​​🇱​​🇱​ ​🇲​​🇪​ ​🇷​​🇮​​🇨​​🇰​  ..​🇴​​🇷​ ​🇱​​🇪​​🇴​ 
+    
+ㅤ<p align=left>ㅤㅤㅤ 
+<details open> <summary>ㅤㅤㅤㅤinterests,,, </summary>
 
-<p align="right">
-┈┈┈┈┈┈┈┈ ┈┈┈┈┈┈┈┈ ┈┈┈┈┈┈┈┈ ^ᶠʳᵒᵐ, ᵒⁿᶜᵉ ᵘᵖᵒⁿ ᵃ ᵗⁱᵐᵉ... ⁱⁿ ʰᵒˡˡʸʷᵒᵒᵈ<br/>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi love,, Leonardo DiCaprio films 🎞️ ﹐ homestuck ﹐  RDR2 ﹐ The Beatles ﹐ The WITCHER  ﹐ㅤㅤㅤ<br/> + +​🇦​​🇳​​🇾​ ​🇵​​🇴​​🇸​​🇹​​🇪​​🇷​ ​🇴​​🇳​ ​🇲​​🇾​ ​🇸​​🇹​​🇷​​🇦​​🇼​​🇵​​🇦​​🇬​​🇪​ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ(​🇮​ ​🇩​​🇴​​🇳​​🇹​ ​🇴​​🇫​​🇹​​🇪​​🇳​ ​🇮​​🇳​​🇹​  ​🇼​ ​🇫​​🇦​​🇳​​🇩​​🇴​​🇲​s)
 
-  <p align="center">
-☻,,☻☻☻ he⟨⟨him,, -- c+h +int <br/>
-    ┈┈┈┈┈┈ canadian﹐ english-speaking ﹐ 18 ﹐
- <br/>
-<p align="left">
-i love ... ⨾ <br/> 
-<p align="center">
-- once upon a time... in hollywood ﹐ the beatles ﹐ homestuck ﹐ FIGHT CLUB ﹐ deltarune <br/> 
-﹐ Red Dead Redemption II ﹐ The WITCHER ﹐ +any poster on my strawpage ^^ <br/>
-  ✯-- ʲᵘˢᵗ ᵃⁿ ᶠʸᶦ, ᶦ ᵈᵒⁿᵗ ᶦⁿᵗ ʷ ᶠᵃⁿᵈᵒᵐ ᶠᵒʳ ᵐᵒˢᵗ ᵒᶠ ᵗʰᵉˢᵉ ^^ ᵉˣᶜᵉᵖᵗ ᴼᵁᴬᵀᴵᴴ<br/> 
-<br/> 
-<p align="left"> id describe myself as generally friendly﹐ so dont be afraid to int on any platform﹐﹐  <br/> 
-  i also encourage calling me by js the name of the character im cosplaying lol <br/>
-┈┈┈> digital artist ┈┈┈┈ ENTP <br/> 
-<br/> 
-<br/> 
-<p align="center">
-<img width="375" height="50" alt="pixil-gif-drawing" src="https://github.com/user-attachments/assets/1fbbdac4-4f56-48ae-82bf-bbe0a7fe4934" />  
-  <br/>  ┈┈┈┈┈┈┈┈ ┈┈┈┈┈┈┈┈ʳⁱᶜᵏ ᵈᵃˡᵗᵒⁿ ᵏⁱⁿ,..
-  <br/>
-   <br/>
-  OFFICIALLY PONYTOWNS RICK DALTON!!! <br/>
-  <img width="601" height="30" alt="image" src="https://github.com/user-attachments/assets/fdb5b8aa-54f9-447e-966e-80f503f5d6ba" />
-<br/> 
-  <br/>
-  <br/>
-  ✭
+</details>
+<br/>
 
+<p align=center> <details open> <summary>  more on meㅤ,, </summary>
+  i'mㅤㅤ 1⃣  8⃣ㅤㅤ. im a tumblr-based digital artist,, ㅤㅤㅤand i'm in culinary school... <br/>
+ ㅤㅤㅤ i'm male, i use male nouns.. ㅤㅤi'm a bit socially inept, and probably autistic. 
+  <br/> <br/> 
+  alternate names i answer to are..ㅤ ﹐ Davey, Pluto, Paul, David... 
+
+</details>
+
+<p align=right>
+  <img width="276.6" height="225.6" alt="image" src="https://github.com/user-attachments/assets/9475b890-b123-4145-a177-c7e91505c6f1" /> /,,~..
+
+<br/>
+<br/>
+<br/>
+
+<p align=left> 
+<a href="https://www.tumblr.com/plutosforks">my.. TUMBLR</a> ﹐ <a href="https://ricksforks.straw.page">my., STRAWPAGE</a>  ﹐ <a href="https://pronouns.cc/@ricksforks">my., PRONOUNS.CC</a> 
 
